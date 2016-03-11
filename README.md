@@ -1,2 +1,2 @@
 # rzagrajsek.github.io
-my personal site
+© Copyright 2016 Raphael Zagrajsek - All Rights Reserved
